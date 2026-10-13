@@ -20,7 +20,7 @@
 <details>
   <summary>byi</summary>
 
- i can be blunt, dry, sarcastic, or just fuck with you depending on how close we are. most of the time i'm joking, sometimes i'm not. you'll figure it out. also im avoidant and dont reach out, so if you want to talk to me you have to msg me first.
+ i　can　be　blunt,　dry,　sarcastic,　or　just　fuck　with　you　depending　on　how　close　we　are.　most　of　the　time　i'm　joking,　sometimes　i'm　not.　you'll　figure　it　out.　also　im　avoidant　and　dont　reach　out,　so　if　you　want　to　talk　to　me　you　have　to　msg　me　first.
 
 </details>
 
@@ -29,16 +29,16 @@
 <details>
   <summary>interests</summary>
   
-  rick and morty, call of duty, bungo stray dogs, hazbin hotel, deadpool, hannibal nbc, genshin impact, deltarune/undertale, gravity falls, good omens, fnaf and any type of horror. i fucking love horror games and movies. if it has the potential to scare the shit out of me, i'm probably interested.   
+  currently　heavy　on　rick　and　morty　and　call　of　duty,　although　im　in　way　more　fandoms　than　just　those　two.   
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
-     call me rick/prime or any nickname you want i dont really care. im 19 years old and go by any pronouns with a he/him pref. im also pansexual and ace.
+     call　me　rick/prime　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
       
 <details>
   <summary>dni</summary>
   
-dni/dislikes: its pretty simple just dont be an asshole. no homophobia, racism, ableism, sexism, etc. also if youre a blocked acc, ex friend, or someone whos had drama with me in the past youre staying blocked. i dont believe in second chances.
+dni/dislikes:　its　pretty　simple　just　dont　be　an　asshole.　no　homophobia,　racism,　ableism,　sexism,　etc.　also　if　youre　a　rickorty　shipper　stay　the　fuck　away.
 </details>
 
 </div>
