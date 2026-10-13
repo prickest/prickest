@@ -38,7 +38,7 @@
 <details>
   <summary>dni</summary>
   
-dni/dislikes:　its　pretty　simple　just　dont　be　an　asshole.　no　homophobia,　racism,　ableism,　sexism,　etc.　also　if　youre　a　rickorty　shipper　stay　the　fuck　away.
+its　pretty　simple　just　dont　be　an　asshole.　no　homophobia,　racism,　ableism,　sexism,　etc.　also　if　youre　a　rickorty　shipper　stay　the　fuck　away.
 </details>
 
 </div>
