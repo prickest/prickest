@@ -20,7 +20,7 @@
 <details>
   <summary>byi</summary>
 
- i　can　be　blunt,　dry,　sarcastic,　or　just　fuck　with　you　depending　on　how　close　we　are.　most　of　the　time　i'm　joking,　sometimes　i'm　not.　you'll　figure　it　out.　also　im　avoidant　and　dont　reach　out,　so　if　you　want　to　talk　to　me　you　have　to　msg　me　first.
+ i　can　be　blunt,　dry,　sarcastic,　or　just　fuck　with　you　depending　on　how　close　we　are.　you'll　figure　it　out.　also　im　avoidant　and　dont　reach　out,　so　if　you　want　to　talk　to　me　you　have　to　msg　me　first.
 
 </details>
 
