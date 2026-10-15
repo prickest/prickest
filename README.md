@@ -49,7 +49,7 @@ its　pretty　simple　just　dont　be　an　asshole.　no　homophobia,　ra
 <p align="center">
 </p>
 
-[STRAWPAGE](https://prickest.straw.page/)
+[straw](https://prickest.straw.page/)　[rentry](https://rentry.co/prickest)
 
 
 
