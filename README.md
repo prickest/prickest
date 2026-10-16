@@ -33,7 +33,7 @@
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
-     call　me　rick/sanchez　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
+     call　me　rick/prime　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
       
 <details>
   <summary>dni</summary>
