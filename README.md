@@ -29,7 +29,7 @@
 <details>
   <summary>interests</summary>
   
-  currently　heavy　on　rick　and　morty　and　call　of　duty,　although　im　in　way　more　fandoms　than　just　those　two.   
+  currently　heavy　on　rick　and　morty　and　call　of　duty,　and　anything　horror　related.
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
