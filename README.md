@@ -7,7 +7,7 @@
 <!-- 2. Text Links -->
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fprickest&label=OMEGA-DEVICE&labelColor=%23789e8b&countColor=%237e9faa&style=plastic&labelStyle=lower)
   <br/>
-  <sub style="color: #6b705c;">@prickest is my discord. gotta tell me if you want to add me tho.</sub>
+  <sub style="color: #6b705c;">@prickest is my discord.</sub>
 </p>
 
   <table>
@@ -33,7 +33,7 @@
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
-     call　me　rick or soap　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
+     call　me　rick　or　soap　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
       
 <details>
   <summary>dni</summary>
