@@ -20,7 +20,7 @@
 <details>
   <summary>byi</summary>
 
- i　can　be　blunt,　dry,　sarcastic,　or　just　fuck　with　you　depending　on　how　close　we　are.　you'll　figure　it　out.　also　im　avoidant　and　dont　reach　out,　so　if　you　want　to　talk　to　me　you　have　to　msg　me　first.
+ i　can　be　blunt,　dry,　sarcastic,　or　just　fuck　with　you　depending　on　how　close　we　are.　only　ever　as　a　joke　tho.　also　im　avoidant　and　dont　reach　out,　so　if　you　want　to　talk　to　me　you　have　to　int　w　me　first.
 
 </details>
 
@@ -33,7 +33,7 @@
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
-     call　me　rick/prime　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
+     call　me　soap/mactavish,　rick　or　wtv　nickname　you　want,　i　dont　really　care.　im　19　years　old　and　go　by　any　pronouns　with　a　he/him　pref.
       
 <details>
   <summary>dni</summary>
